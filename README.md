@@ -36,6 +36,6 @@ PASSWORD : HAUNTERboy
 ![](https://i.ibb.co/hYmYRkj/IMG-20210221-190443.jpg)
 
 ### Contact With HUNTERBOY ALAMIN If You Need Any Help
-<b>🔰🔰🔰🔰</b> </br></b></br> <br>[[![Github](https://img.shields.io/badge/Github-[HUNTERBOY_ALAMIN-green?style=flat-square&logo=GITHUBlogoColor=blue&labelColor=blue)](https://github.com/DevillHunter)]<br> [_[![Facebook](https://img.shields.io/badge/Facebook-HUNTERBOY_ALAMIN-yellow?style=flat-square&logo=facebooklogoColor=green&labelColor=red)](https://www.facebook.com/alaminkhan.60)_]
+<b>🔰🔰🔰🔰</b> </br></b></br> <br>[[![Github](https://img.shields.io/badge/Github-[HUNTERBOY_ALAMIN-green?style=flat-square&logo=GITHUBlogoColor=blue&labelColor=blue)](https://github.com/Hunter-alamin)]<br> [_[![Facebook](https://img.shields.io/badge/Facebook-HUNTERBOY_ALAMIN-yellow?style=flat-square&logo=facebooklogoColor=green&labelColor=red)](https://www.facebook.com/alaminkhan.60)_]
 
 
